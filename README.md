@@ -1,6 +1,4 @@
-# Screen-resumes-only-focus-on-three-points-not-directly-out-The-workplace-is-cruel.
-
-筛选简历只关注三点，没写到直接out！职场就是这么残酷
+# 筛选简历只关注三点，没写到直接out！职场就是这么残酷
 
 职场“金三月”如期而至，自进入三月份以来，找工作的人翻倍增长。在找工作之前，求职者都会准备一份简历，以便更好的介绍自己。好的简历就像是敲门砖，拿到offer的几率更大。那么，HR喜欢看什么样的简历呢？
 
